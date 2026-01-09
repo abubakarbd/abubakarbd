@@ -49,8 +49,8 @@
 ---
 
 ## 🤝 Connect With Me
-- 🌐 Facebook: https://facebook.com/
-- 💼 GitHub: https://github.com/mdabubakar
+- 🌐 Facebook: https://www.facebook.com/abubakarbd22
+- 💼 GitHub: https://github.com/abubakarbd
 
 ---
 
